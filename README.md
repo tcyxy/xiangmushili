@@ -6,4 +6,4 @@
 |   100     |  半年相当于16一月     |
 
 
-![输入图片说明](https://pbs.twimg.com/media/GdSywonaoAEEjjp?format=png&name=small)
+![欢迎购买](https://pbs.twimg.com/media/GdSywonaoAEEjjp?format=png&name=small)
